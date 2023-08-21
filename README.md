@@ -1,1 +1,4 @@
-# joseguzman02.github.io
+# Computer Science Undergrad
+
+### Education
+College of Staten Island
